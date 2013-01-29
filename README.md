@@ -9,4 +9,8 @@ You might be surprised to find out what others are prepared to pay for what you 
 Can't think of a talent ? let me ask you what could you do for $5..$10..$20..$50 how about $450
 Do I have you thinking? Great!
 Go sign up start your online career TODAY! 
-http://www.5spot.ca 
+
+http://www.5spot.ca
+Be anyone,anywhere!
+
+all it takes is 2 minutes to get going!!
