@@ -13,4 +13,4 @@ Go sign up start your online career TODAY!
 http://www.5spot.ca
 Be anyone,anywhere!
 
-all it takes is 2 minutes to get going!!
+All it takes is 2 minutes to get going!!
