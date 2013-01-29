@@ -11,6 +11,6 @@ Do I have you thinking? Great!
 Go sign up start your online career TODAY! 
 
 http://www.5spot.ca
-Be anyone,anywhere!
+be anyone,anywhere!
 
 All it takes is 2 minutes to get going!!
